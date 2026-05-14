@@ -1,4 +1,4 @@
-# 
+# Adobe Audition for macOS smart Transition: cloud-sync & 4K-export offers the most advanced Adobe Audition for macOS transition, with cloud-sync and 4K-export. Ideal for
 
 
 
